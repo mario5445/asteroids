@@ -30,6 +30,7 @@
 ## **License:**
 * Free to use 
 
+<br>
 
 * Enjoy the game 🤙
 * Made with love 💗
