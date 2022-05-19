@@ -32,8 +32,8 @@
 
 <br>
 
-* Enjoy the game 🤙
-* Made with love 💗
+Enjoy the game 🤙
+Made with love 💗
 
 
 2022
