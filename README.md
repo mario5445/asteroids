@@ -28,12 +28,12 @@
 <br>
 
 ## **License:**
-* Free to use 
+* Free to use for educational purposes
 
 <br>
 
-Enjoy the game 🤙
-Made with love 💗
+Enjoy the game.🤙
+Made with love.💗
 
 
 2022
